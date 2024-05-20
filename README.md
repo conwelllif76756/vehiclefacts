@@ -1,1 +1,1 @@
-The Chevrolet Series 490, introduced in 1915 but produced into the 1920s, offered an affordable alternative to Ford's Model T, contributing to Chevrolet's success as a mass-market brand.
+The Ford Model N, introduced in 1906, was Ford's first successful mass-produced car after the failure of earlier models like the Model A and Model B.
