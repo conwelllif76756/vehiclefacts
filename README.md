@@ -1,1 +1,1 @@
-The Winton Bullet No. 1, built by Alexander Winton in 1903, set the land speed record of 68.18 mph, demonstrating the potential of automobiles for speed and performance.
+The Oldsmobile 98, introduced in 1941 but produced into the post-war era, was a flagship model known for its powerful engine, luxurious amenities, and cutting-edge technology.
