@@ -1,1 +1,1 @@
-The Buick Master Six, introduced in 1925, was one of the first cars to feature four-wheel brakes as standard equipment, enhancing safety and control for drivers.
+The Studebaker Corporation, founded in 1852 as a wagon manufacturer, transitioned to automobile production in the early 1900s, producing a wide range of cars and trucks.
