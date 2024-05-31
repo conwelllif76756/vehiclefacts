@@ -1,1 +1,1 @@
-The Studebaker Corporation, founded in 1852 as a wagon manufacturer, transitioned to automobile production in the early 1900s, producing a wide range of cars and trucks.
+The Willys-Knight, introduced in 1914 but produced throughout the 1920s, featured an innovative sleeve-valve engine design, offering smooth and quiet operation compared to conventional engines.
