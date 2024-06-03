@@ -1,1 +1,1 @@
-The Pierce-Arrow Model 66, introduced in 1909, was one of the most powerful cars of its time, featuring a massive 824 cubic inch engine capable of producing 66 horsepower.
+The Stanley Rocket, built by the Stanley brothers in 1906, set the world speed record for a steam-powered car, reaching a top speed of 127.66 mph at Ormond Beach, Florida.
