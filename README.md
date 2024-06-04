@@ -1,1 +1,1 @@
-The Stanley Rocket, built by the Stanley brothers in 1906, set the world speed record for a steam-powered car, reaching a top speed of 127.66 mph at Ormond Beach, Florida.
+The Packard Twin Six, introduced in 1916 but produced throughout the 1920s, featured a V12 engine and was renowned for its smooth performance and luxurious appointments.
