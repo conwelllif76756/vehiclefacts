@@ -1,1 +1,1 @@
-The Duesenberg Model J, introduced in 1928, was one of the most luxurious and powerful cars of its time, featuring a massive inline-eight engine and exquisite craftsmanship.
+The Jeep, originally developed for military use by Willys-Overland and Ford, became an iconic vehicle of World War II and laid the foundation for the modern SUV.
