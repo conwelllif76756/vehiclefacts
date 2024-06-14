@@ -1,1 +1,1 @@
-The Jeep, originally developed for military use by Willys-Overland and Ford, became an iconic vehicle of World War II and laid the foundation for the modern SUV.
+The Auburn Automobile Company, founded in 1900, gained prominence in the 1920s with models like the Auburn 8-88, known for their stylish designs and powerful engines.
