@@ -1,1 +1,1 @@
-The Auburn Automobile Company, founded in 1900, gained prominence in the 1920s with models like the Auburn 8-88, known for their stylish designs and powerful engines.
+The Lincoln Motor Company, established in 1917, was acquired by Ford in 1922, positioning it as a luxury brand within the Ford Motor Company lineup.
