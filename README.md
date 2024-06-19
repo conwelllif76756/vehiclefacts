@@ -1,1 +1,1 @@
-The Studebaker Corporation, founded in 1852 as a wagon manufacturer, transitioned to automobile production in the early 1900s, producing a wide range of cars and trucks.
+The Chevrolet Fleetline Aerosedan, introduced in 1941 but popular in the post-war period, featured sleek styling and was one of the first cars to incorporate streamlining for improved aerodynamics.
