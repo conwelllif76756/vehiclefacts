@@ -1,1 +1,1 @@
-The Cadillac Type 61, introduced in 1924, featured a groundbreaking V8 engine, setting new standards for power and performance in luxury automobiles.
+Rationing of gasoline and rubber during World War II led to reduced driving and conservation efforts among civilians, influencing car design and fuel efficiency in subsequent years.
