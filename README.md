@@ -1,1 +1,1 @@
-The first modern gas station, designed specifically for automobiles, opened in 1905 in St. Louis, Missouri, offering fuel, oil, and other services to motorists.
+The Rolls-Royce Silver Ghost, introduced in 1906, set new standards for luxury and reliability in automobile design, earning a reputation as the "best car in the world."
