@@ -1,1 +1,1 @@
-The Nash Ambassador, introduced in 1941 but produced into the post-war period, was a full-size car known for its spacious interior, comfortable ride, and advanced engineering features.
+The Chrysler Corporation was founded in 1925 by Walter Chrysler, quickly becoming one of the "Big Three" American automakers alongside Ford and General Motors.
