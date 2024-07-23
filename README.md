@@ -1,1 +1,1 @@
-The Chrysler Corporation was founded in 1925 by Walter Chrysler, quickly becoming one of the "Big Three" American automakers alongside Ford and General Motors.
+The Packard Clipper, introduced in 1941 but produced into the post-war period, was a luxury car known for its elegant design, advanced engineering, and smooth performance.
