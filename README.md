@@ -1,1 +1,1 @@
-The Packard Clipper, introduced in 1941 but produced into the post-war period, was a luxury car known for its elegant design, advanced engineering, and smooth performance.
+The Nash Ambassador, introduced in 1941 but produced into the post-war period, was a full-size car known for its spacious interior, comfortable ride, and advanced engineering features.
