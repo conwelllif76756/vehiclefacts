@@ -1,1 +1,1 @@
-The Nash Ambassador, introduced in 1941 but produced into the post-war period, was a full-size car known for its spacious interior, comfortable ride, and advanced engineering features.
+The Indianapolis Motor Speedway, built in 1909, became a renowned venue for automobile racing, hosting events like the Indianapolis 500, one of the oldest and most prestigious motorsport races.
