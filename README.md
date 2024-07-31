@@ -1,1 +1,1 @@
-The Jeep, originally developed for military use by Willys-Overland and Ford, became an iconic vehicle of World War II and laid the foundation for the modern SUV.
+The Hudson Commodore, introduced in 1941 but popular in the post-war years, was a full-size car known for its innovative "step-down" design, which lowered the car's center of gravity for improved handling.
